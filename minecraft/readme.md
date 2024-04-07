@@ -1,1 +1,1 @@
-
+Minecraft style invite
